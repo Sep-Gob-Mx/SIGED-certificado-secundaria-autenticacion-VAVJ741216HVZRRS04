@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-VAVJ741216HVZRRS04
+VAVJ741216HVZRRS04
